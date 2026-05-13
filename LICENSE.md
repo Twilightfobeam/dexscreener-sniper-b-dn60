@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with secure dexscreener sniper bot | back-running + blockchain-scanning, the #1 dexscreener sniper bot. Includes back-running and blockchain-scanning for a
 
 
 
